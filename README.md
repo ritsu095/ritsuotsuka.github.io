@@ -1,1 +1,1 @@
-# ritsuotsuka.github.io
+# ritsu095.github.io
